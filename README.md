@@ -1,2 +1,1 @@
 
-[Uploading ÜNİVERSİTE KÜTÜPHANE YÖNETİM SİSTEMİ.docx…]()
